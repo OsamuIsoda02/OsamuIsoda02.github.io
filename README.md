@@ -1,0 +1,1 @@
+# OsamuIsoda02.github.io
